@@ -1,1 +1,1 @@
-https://ksushiik.github.io/cv/cv
+https://ksushiik.github.io/cv
